@@ -1,3 +1,10 @@
 # Supercritical-CO2.Turbine
 - [The Supercritical CO2 Turbine: Waterless Wonder](https://youtu.be/M55XzxjmON0)
 - [The Unknown Phase of Matter](https://youtu.be/J_vXK9uvRf4)
+- [It's Happening - China Launches World's First Supercritical CO2 Turbine](https://youtu.be/IHzY-dJmvk8)
+- [How Ultra-Efficient CO2 Turbines Are The Future of Energy](https://youtu.be/z7dr6oKHqqM)
+- [It's Here! Uncovering China’s Ultra-Efficient CO2 Turbine](https://youtu.be/9xDBeu4OAYI)
+- [The End of Steam? Supercritical CO2 + Nuclear Reactors - Nuclear Engineer Reacts to Anton Petrov](https://youtu.be/dHIT6LomAXc)
+- [The End of the Steam Age? China’s Breakthrough CO2 Generator](https://youtu.be/BNDrC6fkjf0)
+- [Supercritical Turbines: The NEXT Generation Power Source](https://youtu.be/aLIjn0JmFyA)
+- [The Epochal Ultra-Supercritical Steam Turbine](https://youtu.be/suCEKLCCgzw)
